@@ -17,6 +17,6 @@
 3. непоседа
 4. забиякa
 
- Но при этом я открыт, общителен и обладал хорошими талантами. Например, за одну ночь могк нарисовать портреты всех своих друзей!
+ Но при этом я открыт, общителен и обладал хорошими талантами. Например, за одну ночь могу нарисовать портреты всех своих друзей!
 
  ![Это я!](https://sun9-76.userapi.com/impg/XeT4NXd5ayQkpnFDsw-logW6DIjCUgVubV_T0Q/6kAcPZT-K-4.jpg?size=900x900&quality=96&sign=57bde81f874a3056f5926febaa13683f&c_uniq_tag=l4IDzwwpgxsYhYEph2whyiD0VBmztGsA4nNuWcjgYVE&type=album)
